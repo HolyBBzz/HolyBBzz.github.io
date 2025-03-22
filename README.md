@@ -1,2 +1,0 @@
-# HolyBBzz.github.io
-try
